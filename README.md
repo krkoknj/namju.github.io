@@ -1,1 +1,0 @@
-# namju.github.io
